@@ -23,6 +23,7 @@ I like this series because the story is interesting and exciting. It also shows 
 ⭐⭐⭐⭐⭐ 5/5
 
 > Friends don't lie.
+> This is my favorite series to watch.
 
 ---
 **Conclusion:** Stranger Things is a great series that I recommend watching.
